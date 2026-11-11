@@ -7,4 +7,4 @@
 🎮:聯合模式，一溜五台機\
 🌧️:知道全圖小金人
 ### 信箱
-📫:dontfindme@happy.good
+📫:I don't know.
